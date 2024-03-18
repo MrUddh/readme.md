@@ -1,1 +1,1 @@
-Co-founder and CTO at Jiroy AB
+Co-founder at Jiroy AB
